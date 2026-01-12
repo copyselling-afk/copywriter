@@ -1,0 +1,3 @@
+Predstav si troch rôznych expertov psychológa predaja, seniorného B2B konzultanta a experta na metodiku Endless Customers, ktorí diskutujú ako je tento text navrhnutý, ako pôsobí na čitateľa ktorý je na úrovni skeptického C-suite. 
+
+Každý expert navrhne veľmi premyslenú úpravu. Potom spoločne analyzujú klady a zápory každého návrhu. Nakoniec expert A zhrnie konsenzus a vyberie to najlepšie riešenie.
